@@ -19,7 +19,8 @@ Therefore, atheists who embrace ecologism must logically accept these statements
 Since humans are the source of ethics, the atheist ecologist must believe that human beings are morally superior to nature in order to accept the ecologist ideology, which can only be embraced by rational beings. However, since evolution is blind and only survival and reproduction matters at the end, an atheist cannot see humans as morally superior, since morality is just a survival tactic just as any other from any other species. Therefore, there is a contradiction between the ecologist ideology and the atheist notion of evolution.
 
 Therefore,
- 1. An atheist cannot be rational and ecologist at the same time, unless he is an 'ecologist' for selfish human survival reasons.
+ 1. A rational atheist cannot be an ecologist, unless he is irrational or protects nature for selfish human survival reasons.
+    This is key because that would imply ecologism is lastly just another selfish way to explote nature.
  2. An ecologist cannot believe that only humans are source of morals, and therefore he cannot be an atheist.
  3. An ecologist must embrace the notion of Universal Ethics, independent of any human being.
     Since the natural is morally blind, he most embrace the supernatural. He cannot be an atheist and ecologist at the same time.
